@@ -1,0 +1,1 @@
+# Cropped_Image
